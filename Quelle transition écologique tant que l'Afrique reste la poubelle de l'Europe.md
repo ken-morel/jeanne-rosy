@@ -6,7 +6,7 @@ Réfléchissons sur ces quelques points :
 
 ## Exportation de déchets toxiques et pollution :
 
-### *Déchets toxiques en Afrique : un crime contre l'environnement et l'humanité* par Greenpeace (2020)
+### [*Déchets toxiques en Afrique : un crime contre l'environnement et l'humanité*](https://www.greenpeace.org/international/publication/7245/the-toxic-truth/) par Greenpeace (2020)
 
 Ce rapport dénonce le dumping illégal de déchets dangereux en provenance d'Europe vers l'Afrique, causant des graves problèmes de santé et de pollution sur les populations locales.
 
