@@ -10,7 +10,7 @@ Réfléchissons sur ces quelques points :
 
 Ce rapport dénonce le dumping illégal de déchets dangereux en provenance d'Europe vers l'Afrique, causant des graves problèmes de santé et de pollution sur les populations locales.
 
-### *L'Afrique, poubelle de l'Europe ?* par Rosa Melo (2019)
+### [*L'Afrique, poubelle de l'Europe ?*](https://www.linkedin.com/pulse/quelle-transition-%C3%A9cologique-tant-que-lafrique-reste-la-rosy-esso-9ju4e/?trk=public_post&originalSubdomain=fr) par Rosa Melo (2019)
 
 Cet article analyse les conséquences environnementales de l'exportation de déchets électroniques d'Europe vers l'Afrique, soulignant la contamination des sols et des eaux, ainsi
 que les risques sanitaires pour les populations.
