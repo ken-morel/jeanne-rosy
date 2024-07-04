@@ -25,5 +25,19 @@ Ce livre explore les mécanismes d'accaparement des terres en Afrique par des en
 
 Cette ONG met en lumière le rôle de l'Europe dans la déforestation des forêts tropicales a
 
-
 fricaines, notamment liée à la production de bois, d'huile de palme et de biocarburants.
+
+## Externalisation des impacts environnementaux :
+
+### *Le changement climatique et l'injustice climatique : l'Afrique en première ligne* par le Panel Intergouvernemental sur le Changement Climatique (IPCC, 2021)
+
+Ce rapport souligne la vulnérabilité disproportionnée de l'Afrique aux impacts du changement climatique, tout en soulignant sa faible contribution aux émissions de gaz à effet de serre.
+
+### *L'empreinte carbone cachée de l'Europe* par Oxfam (2019)
+
+Cette étude montre que l'empreinte carbone réelle de l'Europe est bien plus importante que ce que ses émissions domestiques indiquent, en raison de l'externalisation de sa production vers des pays comme l'Afrique.
+
+Ces quelques rapports illustrent comment les pratiques européennes contribuent à la dégradation de l'environnement en Afrique, entravant ainsi les efforts de transition écologique sur le continent. Un changement radical des modes de production et de consommation en Europe, couplé à un soutien aux initiatives de développement durable en Afrique, est crucial pour une transition écologique juste et inclusive.
+
+Il est important de noter que cette critique ne vise pas à diaboliser l'Europe ou à nier les efforts déployés par certains acteurs européens en faveur du développement durable en Afrique. Il s'agit plutôt d'appeler à une remise en question des relations de pouvoir inégales et des pratiques néfastes qui persistent entre les deux continents. Une transition écologique juste et inclusive ne pourra se concrétiser qu'à travers une coopération équitable et respectueuse de l'environnement et des populations africaines.
+
